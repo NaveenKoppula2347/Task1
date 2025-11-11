@@ -1,0 +1,1 @@
+linkedin.com/in/naveen-koppula-186193396
